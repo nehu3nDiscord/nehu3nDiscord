@@ -10,7 +10,7 @@ Estudio JavaSript, HTML5 y CSS3, intentando perfeccionarme a mis tiempos en cada
 
 Esta cuenta fue creada para proyectos de Discord, por lo que, obviamente, no es mi principal. 😅
 
-Muchas gracias por leer y cualquier consulta, duda o solicitud sera mas que recibida por mi cuenta e la plataforma. (Link en icono) 🧩
+Muchas gracias por leer y cualquier consulta, duda o solicitud sera mas que recibida por mi cuenta en la plataforma. (Link en icono) 🧩
 
 ## `English / Ingles`
 __Hello! My name is Nehuen and I've been a Discord developer for more than 2 years.__ 🤖 
