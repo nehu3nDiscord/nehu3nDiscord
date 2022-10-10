@@ -23,5 +23,5 @@ I study JavaSript, HTML5 and CSS3, trying to perfect myself at my times in each 
 
 This account was created for Discord projects, so it's obviously not my main one. 😅
 
-Thank you very much for reading and any query, doubt or request will be more than received by my account and the platform. *(Link in icon)* 🧩
+Thank you very much for reading and any query, doubt or request will be more than received by my account of the platform. *(Link in icon)* 🧩
 
