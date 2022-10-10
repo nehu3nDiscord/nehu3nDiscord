@@ -1,2 +1,4 @@
-# nehu3nDiscord-
-Hi users 👀
+## My Bio 😉
+# Spanish / Español 
+
+
