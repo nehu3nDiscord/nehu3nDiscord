@@ -8,5 +8,7 @@ Tambien he sido desarrollador en bots muy chicos... y otros muy grandes, formand
 
 Estudio JavaSript, HTML5 y CSS3, intentando perfeccionarme a mis tiempos en cada uno, siendo este primero el que mas uso. 📚
 
+Esta cuenta fue creada para proyectos de Discord, por lo que, obviamente, no es mi principal. 😅
+
 
 
