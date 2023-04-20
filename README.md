@@ -3,4 +3,4 @@
 
 **This account is dedicated to Discord and my related projects.**
 
-`@:` 𝓝𝓮𝓗𝓾𝓔𝓷#4407 [Click here 🔗](https://discord.com/users/667062022839599124)
+`@:` 𝓝𝓮𝓗𝓾𝓔𝓷#4407 - [Click here 🔗](https://discord.com/users/667062022839599124)
